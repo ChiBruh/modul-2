@@ -1,2 +1,2 @@
 # modul-2
-Halo ini Ichiro
+Ichiro Albert - 105221022
